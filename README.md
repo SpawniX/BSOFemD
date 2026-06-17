@@ -32,7 +32,7 @@ BSO"Fem"D (or BSOFD) is a brutal and powerfull "Bricker" made for<abbr title="Hy
 > lol :3
 
 # THIS IS PURELY FOR EDUCATIONAL SERVICES,IF YOU RAN THIS,THEN ITS YOUR FAULT!!!
--# this is NSFW btw
+> this is NSFW brah
 <p align="center">
   <img src="https://media.tenor.com/p2F7I4v8nrkAAAAd/felix-felix-re-zero.gif" alt="me :3">
 </p>
